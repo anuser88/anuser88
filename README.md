@@ -3,7 +3,7 @@
 - 🌱 I’m currently not learning
 - 💞️ I’m looking to collaborate on wtf is this
 - 📫 Can't reach me
-- 😄 Pronouns: Nothing
+- 😄 Pronouns: zhiter
 - ⚡ Fun fact: I'm a person
 
 <!---
