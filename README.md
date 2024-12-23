@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anuser88
-- 👀 I’m interested in coding
+- 👀 I’m interested in peeing... no, coding 
 - 🌱 I’m currently not learning
 - 💞️ I’m looking to collaborate on wtf is this
 - 📫 Can't reach me
