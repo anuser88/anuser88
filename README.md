@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @anuser88
 - 👀 I’m interested in peeing... no, coding 
 - 🌱 I’m currently not learning
-- 💞️ I’m looking to collaborate on wtf is this
+- 💞️ I’m looking to collaborate on nothing
 - 📫 Can't reach me
 - 😄 Pronouns: zhiter
 - ⚡ Fun fact: I'm a person
